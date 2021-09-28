@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aphougat
-- 👀 I’m interested in building things
+- 👀 I’m interested in bulding things which bring postive change in our society and enables people. 
 - 🌱 I’m currently learning a lot of things
 - 💞️ I’m looking to collaborate on anything of value
 - 📫 How to reach me ... abhayphougat@gmail.com
